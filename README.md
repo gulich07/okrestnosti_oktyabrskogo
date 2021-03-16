@@ -1,0 +1,1 @@
+# okrestnosti_oktyabrskogo
